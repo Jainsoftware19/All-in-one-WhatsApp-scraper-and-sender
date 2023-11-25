@@ -4,7 +4,7 @@ All in one WhatsApp scraper and sender
 
 check software on 👇 below link
 
-https://bhansalisoft.com/Product.aspx?PID=38
+https://1.envato.market/LPOWML
 
 
 <h4>What is All in One Whatsapp Software ?</h4>
